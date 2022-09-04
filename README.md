@@ -1,4 +1,6 @@
-### Hi there 👋
+### Hi, I am Cristina Nilvan and this is my potfolio.👩🏻‍💻
+
+
 
 <!--
 **NilvanCristina/NilvanCristina** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
