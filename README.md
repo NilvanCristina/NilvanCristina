@@ -1,4 +1,4 @@
-### Hi, I am Cristina Nilvan and this is my potfolio.👩🏻‍💻
+### Hi, I am Cristina Nilvan and this is my portfolio.👩🏻‍💻
 
 
 
